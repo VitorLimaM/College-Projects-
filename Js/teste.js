@@ -1,0 +1,9 @@
+dawdasdwd
+d
+webkitURLda
+w
+dawdasdwdwd
+addEventListenerwd
+awaitd
+awaitda
+dawdasdwd
